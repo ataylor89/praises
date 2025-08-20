@@ -102,7 +102,7 @@ Mohammed bin Salman and the Saudi Arabian government\
 Barack and Michelle Obama\
 Joe and Jill Biden (Joe Biden was impersonated for four years and he never took office)\
 Bill and Hillary Clinton\
-George and Laura Bush (George Bush did not invade the Middle East... there are terrorists who published fake video of him)\
+George and Laura Bush (George Bush did not invade the Middle East... there are terrorists who published fake video of him... the men who invaded the Middle East are terrorists in the US military)\
 Every good CEO\
 Every good person
 
