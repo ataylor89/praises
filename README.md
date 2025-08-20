@@ -155,3 +155,45 @@ Aaron Schwartz was rescued by China
 I know that Xi Jinping can confirm this
 
 There are many people who can confirm this
+
+## Christopher Yoo
+
+Christopher Yoo is one of the strongest grandmasters in the world
+
+He had a perfect reputation before the Trump administration
+
+He still has a perfect reputation
+
+He is perfect in my eyes
+
+He did not assault a videographer
+
+There are men in the US military who published a fake story about him
+
+Christopher Yoo is really a member of my nuclear family and he is perfect in my eyes
+
+There are so many people who suffered misinformation attacks
+
+There are so many people who suffered impersonation attacks
+
+Bill and Melinda Gates never divorced
+
+Bill and Melinda Gates are parents to me
+
+Someone impersonated Bill and Melinda Gates and posted fake social media posts
+
+Someone impersonated Bill and Melinda Gates and published fake video
+
+So listen
+
+Christopher Yoo is the most peaceful man I know and he's one of the strongest chess players in the world
+
+Christopher Yoo was attacked just like I was attacked
+
+I can empathize with Christopher Yoo because both of us were attacked by misinformation
+
+It's so important to be careful with the information that we see and hear
+
+Christopher Yoo is completely innocent just like I am completely innocent
+
+Christopher Yoo should have every right that Magnus Carlsen has because he is just as trustworthy as Magnus Carlsen
