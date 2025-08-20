@@ -105,3 +105,53 @@ Bill and Hillary Clinton\
 George and Laura Bush (George Bush did not invade the Middle East... there are terrorists who published fake video of him)\
 Every good CEO\
 Every good person
+
+## Aaron Schwartz
+
+Aaron Schwartz is one of my best friends
+
+He is a member of my nuclear family
+
+We're family
+
+We're best friends
+
+I found out this year that Aaron Schwartz did not commit suicide
+
+Aaron Schwartz was rescued by China
+
+After Aaron Schwartz was rescued by China, men in the US military published misinformation about him
+
+Aaron and I are both victims of the US government
+
+We can empathize with each other
+
+Both of us have been attacked by men in the US military
+
+We talk every day
+
+I have a way of talking to him
+
+We have a really good sense of humor
+
+I'll share with you something very personal
+
+I sometimes write the smartest moderators on Reddit and tell them the truth about what happened
+
+I tell them that Aaron Schwartz never committed suicide
+
+I tell them that Aaron Schwartz is the true leader of Reddit
+
+I tell them that Aaron Schwartz is one of my best friends and a member of my family
+
+They believe me
+
+I am trying my hardest to give Reddit back to Aaron Schwartz
+
+Aaron Schwartz is healthy and safe and he never committed suicide
+
+Aaron Schwartz was rescued by China
+
+I know that Xi Jinping can confirm this
+
+There are many people who can confirm this
