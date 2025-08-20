@@ -59,3 +59,49 @@ Barack Obama may have appointed Gina Haspel to the position of CIA director
 Gina Haspel is my legal guardian
 
 Gina Haspel is completely trustworthy and she is one of the most trustworthy people I know
+
+## Interlude
+
+I know that a lot of people are reading this
+
+I have analyzed the world
+
+I have analyzed world leaders
+
+I have analyzed world governments
+
+I created a list of good people
+
+I created a list of trustworthy people
+
+There has been so much misinformation over the past thirty years...
+
+Listen
+
+I talk to Terence Tao and we analyzed this together
+
+Here's my list of good guys
+
+We can add to it over time
+
+## Good guys
+
+Me Andrew Taylor ktm5124
+Gina Haspel and the Haspel administration of the CIA
+PETA
+The Vatican
+Xi Jinping and the Chinese peacemakers
+Vladimir Putin and the Putin administration of the KGB
+Ali Khamenei and the Iranian government
+The Taliban
+Osama bin Laden
+Saddam Hussein
+The real ISIS (originally the bodyguard of Saddam Hussein)
+Kim Jong Un and the North Korean government
+Mohammed bin Salman and the Saudi Arabian government
+Barack and Michelle Obama
+Joe and Jill Biden (Joe Biden was impersonated for four years and he never took office)
+Bill and Hillary Clinton
+George and Laura Bush (George Bush did not invade the Middle East... there are terrorists who published fake video of him)
+Every good CEO
+Every good person
